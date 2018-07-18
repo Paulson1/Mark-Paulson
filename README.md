@@ -1,2 +1,2 @@
-# Mark-Paulson-Photography
+# Mark-Paulson
 Gallery &amp; photo sales for Mark Paulson Photography
